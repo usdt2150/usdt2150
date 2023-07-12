@@ -6,7 +6,7 @@
 - 👀  When the wind and waves are strong.
 - 
 - 🌱  I am currently studying ...Watching the ocean, fresh fish, 
-- 🌱  "The bigger the waves, the more expensive the fish.The more expensive the fish."
+- 🌱  "The bigger the wave, the more expensive the fish."
 
 
 <!---
